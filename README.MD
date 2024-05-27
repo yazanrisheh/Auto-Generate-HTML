@@ -1,0 +1,1 @@
+I just need to add the logo and 8 images left
